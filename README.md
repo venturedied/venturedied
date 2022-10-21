@@ -1,2 +1,2 @@
-I have multiple hobbies, master in none.
+I have multiple hobbies- and am a master in none.
  
